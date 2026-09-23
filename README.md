@@ -237,4 +237,4 @@ King Arthur: Legends Rise is available as a complete free version, with all feat
 Don't miss out on your chance to experience the magic of Camelot. Download King Arthur: Legends Rise for free today and start your epic adventure!
 
 ---
-**Last updated:** 2026-09-22 22:42:17 UTC
+**Last updated:** 2026-09-23 01:12:57 UTC
